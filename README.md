@@ -2,8 +2,8 @@
 
  Snowfall
 
-I really enjoy watching **Snowfall** because of its intense storytelling and realistic portrayal of the early days of the crack cocaine epidemic in Los Angeles.  
-The series follows **Franklin Saint**, a young entrepreneur, as he navigates the dangerous world of drugs, money, and power in the 1980s.
+I really enjoy watching Snowfall because of its intense storytelling and realistic portrayal of the early days of the crack cocaine epidemic in Los Angeles.  
+The series follows Franklin Saint, a young entrepreneur, as he navigates the dangerous world of drugs, money, and power in the 1980s.
 
  Main Characters
 - Franklin Saint  
